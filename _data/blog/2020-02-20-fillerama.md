@@ -11,7 +11,7 @@ I am the Doctor, and you are the Daleks! You hit me with a cricket bat. You know
 
 
 
-Yeah This is awesome!!!
+Yeah, actually Kirrily is awesome!!!
 
 You've swallowed a planet! No… It's a thing; it's like a plan, but with more greatness. You hate me; you want to kill me! Well, go on! **Kill me!** *KILL ME!* Sorry, checking all the water in this area; there's an escaped fish.
 
